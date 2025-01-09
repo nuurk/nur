@@ -1,2 +1,2 @@
 # nur
-waa falaad
+waa inoo bilaabmay sanad cusub
